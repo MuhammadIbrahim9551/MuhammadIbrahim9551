@@ -2,7 +2,7 @@
 - 👀 I’m interested in Automobiles & Computers
 - 🌱 I’m currently learning Engineering
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me ... email: ibbuibrahimu@gmail.com, nas.61975@yahoo.com, https://www.youtube.com/@AkinaGaurdrailerR35, https://www.reddit.com/user/AkinaGaurdrailerR35/
+- 📫 How to reach me ... email: ibbuibrahimu@gmail.com, nas.61975@yahoo.com
 - 😄 Pronouns: ... Smart, Simple, Humble, Dedicated
 - ⚡ Fun fact: ... I'm a motorhead, & fond of Super computers! ;-)
 
