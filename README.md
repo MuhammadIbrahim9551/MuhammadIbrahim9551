@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning Engineering
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me ... email: nas.61975@yahoo.com
-- 😄 Pronouns: ...Hello
-- ⚡ Fun fact: ...Im a good boy
+- 😄 Pronouns: ...Hello. Work Hard, Stay Humble!
+- ⚡ Fun fact: ...Im a motorhead, & fond of Super computers! ;-)
 
 <!---
 MuhammadIbrahim9551/MuhammadIbrahim9551 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
