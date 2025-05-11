@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me ... email: ibbuibrahimu@gmail.com, nas.61975@yahoo.com
 - 😄 Pronouns: ... Smart, Simple, Humble, Dedicated
-- ⚡ Fun fact: ... I'm a motorhead, & fond of Super computers! ;-)
+- ⚡ Fun fact: ... I'm a motorhead, anime/manga fan & fond of super computers! ;-)
 
 <!---
 MuhammadIbrahim9551/MuhammadIbrahim9551 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
