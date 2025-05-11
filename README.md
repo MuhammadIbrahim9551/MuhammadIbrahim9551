@@ -2,8 +2,8 @@
 - 👀 I’m interested in Computers
 - 🌱 I’m currently learning Engineering
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me ... email: nas.61975@yahoo.com
-- 😄 Pronouns: ...Hello. Work Hard, Stay Humble!
+- 📫 How to reach me ... email: ibbuibrahimu@gmail.com, nas.61975@yahoo.com
+- 😄 Pronouns: ... Smart, Simple, Humble, Dedicated
 - ⚡ Fun fact: ...Im a motorhead, & fond of Super computers! ;-)
 
 <!---
